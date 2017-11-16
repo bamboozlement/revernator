@@ -1,1 +1,2 @@
 # revernator
+NOT SUCH THING AS REVERNATOR YOU NIHONJIN! (日本人)
